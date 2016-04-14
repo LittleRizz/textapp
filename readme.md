@@ -21,3 +21,4 @@ I don't want to do this.  But I want the money.  I'm not sure what to do.
 I'm gonnna take it!  fuck programming!   For now.
 I still have a bad feeling about this.
 A ha!  It WAS a scheme.  Plus I really want a programming job.
+Balls niner!
